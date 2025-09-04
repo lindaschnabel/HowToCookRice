@@ -1,7 +1,7 @@
 # How to Cook White Rice
  _By Linda Schnabel_
 
-![White rice served on a plate](AdobeStock_56638188.jpeg)
+![White rice served on a plate](whiterice.jpeg)
 Cooking rice seems straightforward, but can be intimidating for those new to cooking.
 
 People argue on whether or not you should wash your rice, what should the water to rice ratio be, how to season it and more. Most of these decisions come down to cultural backgrounds and the purpose rice serves in the meal.
